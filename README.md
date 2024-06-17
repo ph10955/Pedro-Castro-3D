@@ -8,4 +8,6 @@ Meu nome é Pedro Henrique de Castro
 
 ### Você pode entrar em contato comigo
 pedro.henrique.castro2017@gmail.com
-![](https://media1.tenor.com/m/a4EqDNAnTPgAAAAd/cattuzzo.gif)
+
+Até breve!
+!![](https://media1.tenor.com/m/i46nEmsCh3MAAAAd/guizo-some-guizo.gif)
